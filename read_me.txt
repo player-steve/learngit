@@ -8,4 +8,7 @@ Fda
 F
 Asdf
 Add
-真实自然，非程式化的东西。培养自己对语言的兴趣，觅得适合的学习伙伴，用真实的语言谈论真实的生活，你定会
+真实自然，非程式化的东西。培养自己对语言的兴趣，觅得适合的学习伙伴，用真实的语言谈论真实的生活，你定会jhvjhfgkjhfg,jhfkuyfhyfghcfjytd,fyuhdsagewrjfyuthdyrutiytrytsgndzfxhtiy6reyshzgfnxutireysrhtfgxjiy.retyjsfgxhjkiy.657eyrtshfzgxnchmj,futiretysrfgdznxchmfj,utryetsfgzxnchmutretysrhzdfgxcfjutretrsadzfgxdhyrersdzgxhmutryetsfx
+[p';iogyh;'lpyurt
+Ytjtyhgjy6itjd
+Iuydfiuoip
